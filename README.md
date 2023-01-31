@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any easy to make hahaha
 - 📫 How to reach me ...
 - https://kingrafa.artstation.com/
-- https://www.linkedin.com/in/rafael-fernandes%E2%80%8B-538591154/
+- https://www.linkedin.com/in/king-rafa/
 - https://www.instagram.com/king_rafa.oficial/
 
 <!---
